@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @4m3thy5t
 - 👀 I’m interested in osdev and gamedev still have alot to learn
 - 🌱 I still have to learn coding and more about computer science so i still have much ahead of me but I'll get there eventually
-- 📫 reach me on discord my @ is ameethyst i probably wont respond or your dm won't go through unless you share a server with me but i might change that, please be nice in dm's
+- 📫 reach me on discord my @ is ameethyst i probably wont respond or your dm won't go through unless you share a server with me but i might change that, please be nice in dms
+- 😄 Pronouns: she/her
